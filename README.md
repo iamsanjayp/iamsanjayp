@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on some projects related to python and c programing
 - 📫 How to reach me sanjay1908.p@gmail.com or @itsanjayp on instagram
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: i want to be an ethical hacker buti have no idea of what the heck i am doin
+- ⚡ Fun fact: i want to be an ethical hacker, but i have no idea of what the heck i am doin
